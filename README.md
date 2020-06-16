@@ -1,4 +1,4 @@
-#  :black_nib: the glass down now
+#  :joy: the glass down now
 A professor began his class by holding up a glass with
 some water in it.
 He held it up for all to see; asked the students,’ How much
