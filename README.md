@@ -35,5 +35,5 @@ every day before you go to sleep.
 That way, you are not stressed, you wake up every day
 fresh & strong & can handle any issue, any challenge that
 !comes your way/
-![MY photo](./zinah6)
+![MY photo](./zinah6.jpg)
 
