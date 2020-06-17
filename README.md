@@ -37,3 +37,7 @@ fresh & strong & can handle any issue, any challenge that
 !comes your way
 ![MY photo](./zinah6.jpg)
 
+###### From the second floor window of their small house, the wife could see into the garden next door.  Such fine fresh rows of plants and *flowers* there were!  But no one dared to go over the *garden* wall to see them up close. For the garden belonged to __a witch__! ######
+
+*Life is too short so we should be more positive in our lifes if we want to live happy* :smiley: 
+##### We should learn each other mistakes and help each other to discover new challenges in our life. :wink:
